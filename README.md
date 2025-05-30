@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **hazem.fawzym19@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1fHSwEiEr0itnwYZYfcx_41WwKuEcESIU/view](https://drive.google.com/file/d/1fHSwEiEr0itnwYZYfcx_41WwKuEcESIU/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1b3Ny2G8yk4DrncVpv23waEmFboGECsYb/view?usp=drive_link](https://drive.google.com/file/d/1b3Ny2G8yk4DrncVpv23waEmFboGECsYb/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
